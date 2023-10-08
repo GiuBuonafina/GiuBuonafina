@@ -1,4 +1,4 @@
-### Hello, i´m Giulia! 😊
+### Hello, i´m Giulia!😊
 
 - I'm a computer engineering student - (UPE-University of Pernambuco) 👩‍💻
 - Always ready to learn new technologies and innovative solutions 💡
